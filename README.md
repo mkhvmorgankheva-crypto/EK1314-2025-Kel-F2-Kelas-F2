@@ -1,1 +1,1 @@
-# EK1314-2025-Kel-F2-Kelas-F2
+# TEK1314-2025-Kel-F2-Kelas-F2
